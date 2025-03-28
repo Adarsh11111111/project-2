@@ -1,3 +1,3 @@
 # teacher
 shradha khapara
-created by shradha
+created by shradha delta course
